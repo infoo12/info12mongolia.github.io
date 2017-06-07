@@ -1,1 +1,1 @@
-# htpp://info12mongolia.github.io
+#https://infoo12.github.io/info12mongolia.github.io/
